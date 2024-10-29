@@ -1,16 +1,12 @@
-## Hi there 👋
+Olá, eu sou Wallace.
 
-<!--
-**wallace69gus/wallace69gus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Aqui esão algumas coisas sobre mim:
+- 🔭 Atualmente estou trabalhando em nada
+- 🌱 Atualmente estou estudando.
+- 💬 Pergunte-me sobre animes, jogos e cultura geek.
+- 📫 Entre em contato comigo pelo dc: mestre_wallas
+- 😄 Pronomes: ho/men
+- ⚡ Curiosidade: gosto de loiras
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media.tenor.com/NM5nVgv3vL8AAAAi/saber-fate.gif)
+![](https://media.tenor.com/ai3dOAwpnlIAAAAM/toji-fushiguro.gif)
