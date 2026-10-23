@@ -9,4 +9,4 @@ Aqui esão algumas coisas sobre mim:
 
 ![](https://media.tenor.com/NM5nVgv3vL8AAAAi/saber-fate.gif)
 ![](https://media.tenor.com/ai3dOAwpnlIAAAAM/toji-fushiguro.gif)
-![](https://tenor.com/pt-BR/view/effects-witch-side-yume-nikki-gif-3035685126205788215)
+![](https://tenor.com/effects-witch-side-yume-nikki-gif)
